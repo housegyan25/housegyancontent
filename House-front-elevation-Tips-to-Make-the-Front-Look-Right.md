@@ -1,4 +1,4 @@
-A smart house front elevation <a href="https://www.housegyan.com/service/front/elevation-design">house front elevation</a> shows how your house will look from the street. It helps you pick materials and small features before construction. A clear elevation drawing keeps the builder on the same page and avoids costly mistakes.
+A smart <a href="https://www.housegyan.com/service/front/elevation-design">house front elevation</a> shows how your house will look from the street. It helps you pick materials and small features before construction. A clear elevation drawing keeps the builder on the same page and avoids costly mistakes.
 Main Parts of a Good Elevation
 A front elevation should show the door, windows, balcony, roof lines, and finish materials. It should mark heights and any steps or railings. These details help the builder match the design on site and reduce guesswork.
 Choose Materials and Colors Carefully
